@@ -2,7 +2,7 @@
 - 👀 I’m interested in Happy Learning/Coding
 - 🌱 I’m currently learning every possible thing to progress in my jorney
 - 💞️ I’m looking to collaborate on world's most best project
-- 📫 How to reach me : u cant thats in my hands
+- 📫 How to reach me : via mail -> legendheman814@gmail.com 
 - ⚡ Fun fact: do squats 10 when u sit for more then 30 mins in front of ur PC to reduce  fat(not fat but to keep u flexible and working)
 
 <!---
